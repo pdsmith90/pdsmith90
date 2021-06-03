@@ -1,2 +1,2 @@
 MS in Aerospace Engineering
-In search of position in Space Systems & Dynamics
+Starting PhD in Geodetic Science at The Ohio State University
